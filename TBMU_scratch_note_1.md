@@ -1,10 +1,19 @@
 When Willie shut the library, we walked over to *Jock’s* CHARCOAL CHICKEN.
 
- Jock's *real* name was Josip. His grandparents had come from Croatia on some post-war boat years ago. and started the shop in the 80's, but Jock's been behind the counter for as long as I can remember. The simple storefront signage, painted   and rusting shop sign
+ Jock's *real* name was Josip. His grandparents had come from Croatia on some post-war boat years ago. and started the shop in the 80's, but Jock's been behind the counter for as long as I can remember. 
+ 
+ The simple storefront signage, 
+ 
+ painted   and rusting shop sign
  
  His name on the shop signage was in a bright red, capitalised and all action character looking
  
- wroguht form singlie piece of rusting sheet metal, the bold black black capital
+ wroguht form singlie piece of rusting sheet metal, uniform and inline with all the other high street overhead signage...
+ 
+ the bold black black capital
+ 
+ 
+ 
  TELL THE STORY OF HOW FOR HIS 18TH BDAY HIS NAME WAS ADDED. THAT'S THE DREAMS OUT HERE FOR AN IMMIGRANT KID.
  He'd told us how, on his 18th Birthday, they'd tacked his name onto the shop signage, and he's hardly taken a day off since.
  
