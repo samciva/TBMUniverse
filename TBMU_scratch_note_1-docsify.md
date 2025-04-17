@@ -1,7 +1,7 @@
 # ***Thursday, 17 April 2025***
 ## simplest doc to web
-~~maybe make a 'documentation' site~~
-hen Willie shut the library, we walked over to *Jock’s* CHARCOAL CHICKEN.
+~~maybe make a 'documentation' site~~  
+When Willie shut the library, we walked over to *Jock’s* CHARCOAL CHICKEN.
 
 * KISS
 * you've a million more things to do
