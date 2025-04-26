@@ -7,6 +7,8 @@ When Willie shut the library, we walked over to *Jock’s* CHARCOAL CHICKEN.
 * you've a million more things to do
 * embed out to services that do each part better
 * document your process
+* 
+
 
  Jock's *real* name was Josip. His grandparents had come from Croatia on some post-war boat years ago. and started the shop in the 80's, but Jock's been behind the counter for as long as I can remember. 
  
